@@ -1,3 +1,3 @@
 # coolmathclub
 
-Fuck Iboss and that shit
+Just Ending Censorship
